@@ -1,1 +1,0 @@
-# kumares.github.io
